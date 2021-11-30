@@ -40,10 +40,6 @@
 
 ## Here are my social media handles:
 
-Linkedin: https://www.linkedin.com/in/architgarg603/
-<br />
-Instagram: https://www.instagram.com/_archit.garg_/
-
-###### Email: architgarg603@gmail.com
+###### Email: hbudhi36@gmail.com
 
 ### Thank you!
